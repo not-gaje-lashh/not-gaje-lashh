@@ -1,1 +1,1 @@
-## Just a group who love 'pekob' meebe
+## Just a group who like 'pekob', maybe
